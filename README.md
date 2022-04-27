@@ -1,2 +1,2 @@
 # Code
-come check it out if you want to
+Just make some code put it here and done :D
